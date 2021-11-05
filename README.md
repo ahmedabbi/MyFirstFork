@@ -147,8 +147,8 @@ I am a Bioinformatics Intern at ICIPE
 
 A die hard Arsenal fan!
 
-## Winnie
+Ahmed Abbi; student at PAUSTI
 
-Aspiring Bioinformatician!
+## learning bioinformatics is fun  
 
 
